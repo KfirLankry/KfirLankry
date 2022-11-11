@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [https://kfirlankry.com/](https://kfirlankry.com/)
 
-- 📫 How to reach me **lankrykfir@gmail.com**
+- 📫 You can reach me at **lankrykfir@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
